@@ -1,6 +1,6 @@
 # Journey by Boat
 
-A journey by boat is a peaceful and exciting way to travel across water. The gentle movement of the boat, the cool breeze, and the sound of waves make the trip memorable.
+A journey by boat is a peaceful and exciting way to travel across water. The gentle movement of the boat, the cool breeze, and the sound of waves make the trip memorable. last time i went for a journey like this was insane and full of memory.
 
 ## Early Morning Departure
 
